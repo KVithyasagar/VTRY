@@ -1,3 +1,3 @@
 # VTRY
-![Image](https://github.com/user-attachments/assets/b9b844cb-ea8e-4b9d-a18f-d72366237188)
-![Image](https://github.com/user-attachments/assets/6ada8da5-f565-443c-a7e7-9f22dcaebb2d)
+![Image](https://github.com/user-attachments/assets/6e51ee3e-87dc-456d-b5ef-f1b2fa5f05a1)
+![Image](https://github.com/user-attachments/assets/54a08e5e-31d2-4738-a629-1aab6daaa2d5)
